@@ -22,3 +22,5 @@
 
 
 **📨 Contact us via email @ cysoul.secit@gmail.com**
+
+> DO SECURITY, DON'T PLAY SECURITY
